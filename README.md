@@ -4,8 +4,7 @@
 
  
 
-- 📫 How to reach me: sriramsu64@gmail.com
-- Gitlab - https://gitlab.com/codetyri0n
+- Life goes on and on and on.
 
 
 
