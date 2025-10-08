@@ -3,9 +3,7 @@
 
 
  
-- Part time cricket pro
-- Full time systems programmer
-- Life goes on and on and on.
+- Part time cricket pro, full time systems programmer.
 
 
 - contact: sriramsu64@gmail.com
